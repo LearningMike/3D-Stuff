@@ -1,5 +1,5 @@
 # My 3D Stuff
-Artstation: https://www.artstation.com/michael_abia_v1
+Artstation: https://michael_abia_v1.artstation.com
 
 Subscribe on YouTube: https://www.youtube.com/channel/UC3bXxsQxp7u79nsxXLl09mw
 
